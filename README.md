@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on upwork 
 - 📫 How to reach me LinkedIn-https://www.linkedin.com/in/collins-macharia-5ba365244
 email - comathe17@gmail.com 
-WhatsApp-+254798782512
+WhatsApp-+254716272030
 <!---
 Collinsm7/Collinsm7 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
